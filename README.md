@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @vivnadh
+- 👀 I’m interested in Datascience and ML Domain
+- 📫 How to reach me ... viveknadh2003@gmail.com or https://www.linkedin.com/in/vivek-nadh-505a7624a
